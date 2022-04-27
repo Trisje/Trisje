@@ -2,7 +2,7 @@
 - 👀 I’m interested in you
 - 🌱 I’m currently learning how to kill your mom
 - 💞️ I’m looking to collaborate on pornhub
-- 📫 How to reach me you don't
+- 📫 How to reach me buh
 
 <!---
 Trisje/Trisje is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
